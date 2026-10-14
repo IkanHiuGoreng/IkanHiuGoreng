@@ -10,7 +10,7 @@
 
 - ᣟ𓈒݂ ݃ ⑅ ⠀ Fun fact ! ͜͝ 𓏼𝄄𓈒ֺ ⠀𓎐ᣟ **𓏼𝄄𓈒ֺ my real name is not Zan ᣟ𓈒݂ ݃ ⑅**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left"> DC server .:</h3>
 <p align="left">
 <a href="https://discord.gg/https://discord.gg/G2agESeeP" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discord.gg/G2agESeeP" height="30" width="40" /></a>
 </p>
