@@ -1,5 +1,8 @@
 <h1 align="center">ᣟ𓈒݂ ݃ ⑅ H ii ! ͜͝ 𓏼𝄄𓈒ֺ ⠀𓎐ᣟ ໑ᕱ ᣟ𓈒݂ ݃ ⑅ ⠀Zan 𓏼𝄄𓈒ֺ ⠀𓎐ᣟ ໑ᕱ</h1>
-<h3 align="center">ᣟ𓈒݂⑅ He/him 𓏼𝄄𓈒ֺ</h3>
+<h3 align="center">ᣟ𓈒݂⑅ He/him 𓏼𝄄𓈒ֺ</h3> _ _
+
+
+    ⌞   *click my card.co  4  xtra  info  abt  me* ! 
 
 - Link ᣟ𓈒݂ ݃ ⑅ .1 [Straw](https://zaaa4n.straw.page)
 
